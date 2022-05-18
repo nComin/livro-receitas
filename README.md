@@ -6,7 +6,9 @@ Ola! Bem vindo ao meu livro de receitas :wave: :happy:
 
 - Strogonoff de frango
 
-- Pave
+- Pave 
+
+- Bolo de cenoura :carrot:
 
   
   
